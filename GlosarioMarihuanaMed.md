@@ -156,9 +156,9 @@ A [vaporizer](http://www.leafly.com/news/products/conduction-vs-convection-the-v
 
 
 
-Hecho por [Osvaldo Flores](mailto:oflore3@gmail.com)
+Hecho por [Ozzy Flores](mailto:oflore3@gmail.com)
 
-Made by [Osvaldo Flores](mailto:oflore3@gmail.com)
+Made by [Ozzy Flores](mailto:oflore3@gmail.com)
 
 
 [Fuente de Informacion: Glossario de Leafly; Source of Information: Leafly Glossary](https://www.leafly.com/news/cannabis-101/glossary-of-cannabis-terms)
