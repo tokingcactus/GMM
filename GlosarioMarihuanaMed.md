@@ -14,9 +14,6 @@ Una pipa larga, normalmente hecho de vidrio, que usa agua para difundir y enfria
 
 A large pipe, usually made of glass, that uses water to diffuse and cool the smoke as you breathe it into your lungs. It's recommended to put cold water into the bong to help cool down the   See an example of a bong below.
 
-<img src="https://moderncann.com/wp-content/uploads/2016/12/IMG_6731-1.jpg" width="200">
-
-<a name="myfootnote1">[1]</a>
 
 ## Burbujeador/Bubbler
 
